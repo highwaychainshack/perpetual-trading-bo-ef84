@@ -1,4 +1,4 @@
-# 
+# perpetual trading bot rare Bot - price-monitoring and backtesting offers the most advanced perpetual trading bot, with price-monitoring and backtesting. Ideal for professional
 
 
 
